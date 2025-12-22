@@ -9,6 +9,7 @@ Go on take a look, I don't mind! :D
 
 I'm a Iida & Monoma Simp as you can see but I also love Bill Dicky, Mizu, Teto, Zayne, and My Melody.
 Those are the main ones I truly love
+
 I have a diverse taste in characters, huh?
 
 Anyways~ Go check it out :3
